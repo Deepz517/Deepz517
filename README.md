@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Engineering
 - 💞️ I’m looking to collaborate on ... Programming
 - 📫 How to reach me ... Mob @7899983482
-                         Ena @deepzd517@gmail.com
+                         Email @deepzd517@gmail.com
 
 
 
